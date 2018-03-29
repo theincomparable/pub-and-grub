@@ -1,2 +1,2 @@
 # pub-and-grub
-Recipes from The Incomparable podcast's members slack 
+Recipes from The Incomparable podcast's [member's slack](https://www.theincomparable.com/members/) 
