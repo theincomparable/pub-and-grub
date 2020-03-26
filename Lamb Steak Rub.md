@@ -1,7 +1,15 @@
+# Lamb Steak Rub
+
+## Ingredients
+
 1 part garlic salt
 2 parts sumac
 2 parts paprika 
 1 part ground cumin 
 1 part ground corriander seeds
 
-mix together, apply liberally
+
+## Process
+
+- mix together
+- apply liberally
