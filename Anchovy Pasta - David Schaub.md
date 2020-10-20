@@ -1,27 +1,21 @@
+# Anchovy Pasta
+### by David Schaub
 
-Anchovy Pasta
-by David Schaub
+## Ingredients:
 
-
-Ingredients:
-
-1/4 cup    capers, chopped
-1/2 cup    olives, sliced
-
-5 cloves   garlic, minced
-60 g       anchovies, chopped
-
-60 mL      olive oil
-
-1 28oz can tomatoes, prefer diced or crushed
-1 tsp      oregano
-1/4 tsp    chili flakes
-1/4 cup    red wine 
-
-450 g      linguine
+- 1/4 cup    capers, chopped
+- 1/2 cup    olives, sliced
+- 5 cloves   garlic, minced
+- 60 g       anchovies, chopped
+- 60 mL      olive oil
+- 1 28oz can tomatoes, prefer diced or crushed
+- 1 tsp      oregano
+- 1/4 tsp    chili flakes
+- 1/4 cup    red wine 
+- 450 g      linguine
 
 
-Method:
+## Method:
 
 1. Chop and slice capers and olives, keep aside
 
