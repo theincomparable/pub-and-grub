@@ -1,8 +1,8 @@
-#Butter Chicken
+# Butter Chicken
 
-###Lata Anand's Butter Chicken (on KhanaKhazana.com), adapted by David Schaub
+### Lata Anand's Butter Chicken (on KhanaKhazana.com), adapted by David Schaub
 
-##Ingredients:
+## Ingredients:
 - 6          Thigh Pieces (boneless / skinless), diced
 - 1/2 cup    10% Yogurt
 - 1 tsp      Turmeric Powder, divided
@@ -19,7 +19,7 @@
 - 1 1/4 tsp  Deggi Mirch  (aka Kashmiri Chili Powder), divided
 - 1 Tbs      Tomato paste
 
-##Method:
+## Method:
 1.  Dice chicken thighs into bite size pieces.
 2.  Add yogurt, 1 tsp. salt, 1/2 tsp of turmeric powder and 1/2 tsp Garam Masala.
 3.  Mix well and marinate chicken for 3-4 hours.
@@ -39,6 +39,6 @@
 17. Combine the chicken to the onion slurry mix, followed by milk.
 18. Simmer for 5 minutes.
 
-##Sauce Method:
+## Sauce Method:
 1.  Melt 1 tbs of butter in a small saucepan.
 2.  Remove from the heat, mix in 1 tbs Deggi mirch, pour on top for those who like it spicy.
