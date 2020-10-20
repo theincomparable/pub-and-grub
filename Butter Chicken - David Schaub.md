@@ -40,6 +40,6 @@
 17. Combine the chicken to the onion slurry mix, followed by milk.
 18. Simmer for 5 minutes.
 
-Sauce:
+##Sauce:
 1.  Melt 1 tbs of butter in a small saucepan.
 2.  Remove from the heat, mix in 1 tbs Deggi mirch, pour on top for those who like it spicy.
