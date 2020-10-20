@@ -16,13 +16,13 @@
 
 ## Instructions
 
-	1	Drain water from tuna and put the tuna into a medium bowl.
-	2	Chop onion, celery, and parsley. Mince garlic and add ingredients to tuna.
-	3	Add mayonnaise, olive oil, and mozzarella cheese. Combine all ingredients until well incorporated. Salt and pepper to taste.
-	4	heat oil on high in a skillet, then add a slice of buttered bread (down)
-	6	Scoop about 2 tablespoons of tuna salad on bread while it is browning.
-	7	Add buttered bread slice on top (butter up).
-	8	When browned, flip the tuna melt over and grill the other side.
+1. Drain water from tuna and put the tuna into a medium bowl.
+2. Chop onion, celery, and parsley. Mince garlic and add ingredients to tuna.
+3. Add mayonnaise, olive oil, and mozzarella cheese. Combine all ingredients until well incorporated. Salt and pepper to taste.
+4. Heat oil on high in a skillet, then add a slice of buttered bread (down)
+5. Scoop about 2 tablespoons of tuna salad on bread while it is browning.
+6. Add buttered bread slice on top (butter up).
+7. When browned, flip the tuna melt over and grill the other side.
 
 ## Alternate
 
