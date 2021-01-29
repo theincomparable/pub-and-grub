@@ -5,8 +5,8 @@
 ## Ingredients:
 - 750 g      Thigh Pieces (boneless / skinless), diced
 - 120 ml     10% Yogurt
-- 1 tsp      Turmeric Powder (divided 1/2 tsp and 1/2 tsp)
-- 1 1/2 tsp  Garam Masala (divided 1/2 tsp and 1 tsp)
+- 1 tsp      Turmeric Powder (divided 1/2 tsp, 1/2 tsp)
+- 1 1/2 tsp  Garam Masala (divided 1/2 tsp, 1 tsp)
 - 1 tsp      Salt
 - 60 ml      Almond Powder
 - 60 ml      Light Cream
