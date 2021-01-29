@@ -3,20 +3,20 @@
 ### Lata Anand's Butter Chicken (on KhanaKhazana.com), adapted by David Schaub
 
 ## Ingredients:
-- 6          Thigh Pieces (boneless / skinless), diced
+- 750 g      Thigh Pieces (boneless / skinless), diced
 - 1/2 cup    10% Yogurt
-- 1 tsp      Turmeric Powder, divided
-- 1 1/2 tsp  Garam Masala, divided
+- 1 tsp      Turmeric Powder (divided 1/2 tsp and 1/2 tsp)
+- 1 1/2 tsp  Garam Masala (divided 1/2 tsp and 1 tsp)
 - 1 tsp      salt
 - 4 Tbs      Almond Powder
 - 1/4 cup    Light Cream
 - 1 cup      Milk
-- 1/4 cup    ghee or butter, divided
-- 1 cup      Onion paste (see recipe)
+- 1/2 cup    ghee or butter, divided lots
+- 375 g      Onion, chopped
 - 1 Tbs      Ginger, finely diced
 - 1 Tbs      Garlic, finely diced
 - 1 tsp      Coriander (powder)
-- 1 1/4 tsp  Deggi Mirch  (aka Kashmiri Chili Powder), divided
+- 1 1/4 tsp  Deggi Mirch  (aka Kashmiri Chili Powder) (divided 1/4 tsp, 1 tsp)
 - 1 Tbs      Tomato paste
 
 ## Method:
