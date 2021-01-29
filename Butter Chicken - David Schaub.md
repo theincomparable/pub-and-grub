@@ -4,20 +4,20 @@
 
 ## Ingredients:
 - 750 g      Thigh Pieces (boneless / skinless), diced
-- 1/2 cup    10% Yogurt
+- 120 ml     10% Yogurt
 - 1 tsp      Turmeric Powder (divided 1/2 tsp and 1/2 tsp)
 - 1 1/2 tsp  Garam Masala (divided 1/2 tsp and 1 tsp)
-- 1 tsp      salt
-- 4 Tbs      Almond Powder
-- 1/4 cup    Light Cream
-- 1 cup      Milk
-- 1/2 cup    ghee or butter, divided lots
+- 1 tsp      Salt
+- 60 ml      Almond Powder
+- 60 ml      Light Cream
+- 250 ml     Milk
+- 113 g      Ghee or Butter, divided lots
 - 375 g      Onion, chopped
 - 1 Tbs      Ginger, finely diced
 - 1 Tbs      Garlic, finely diced
 - 1 tsp      Coriander (powder)
 - 1 1/4 tsp  Deggi Mirch  (aka Kashmiri Chili Powder) (divided 1/4 tsp, 1 tsp)
-- 1 Tbs      Tomato paste
+- 1 Tbs      Tomato Paste
 
 ## Method:
 1.  Dice chicken thighs into bite size pieces.
